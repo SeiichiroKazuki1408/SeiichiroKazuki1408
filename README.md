@@ -9,6 +9,7 @@
 
   <img width="863" height="365" alt="4cb02f86b06e58f9f15e1c27638c5737" src="https://github.com/user-attachments/assets/1f15a794-3c44-4cff-9ea8-e30aa8463b7a" />
   
-°°°·.°·..·°¯°·._.·"ᴍᴀʏ ᴛʜᴇ ᴡɪɴᴅ ʙʟᴇꜱꜱ ʏᴏᴜʀ ᴛʀᴀᴠᴇʟꜱ"·._.·°¯°·.·° .·°°°
+°°°·.°·..·°¯°·._.·❝​🇲​​🇦​​🇾​ ​🇹​​🇭​​🇪​ ​🇼​​🇮​​🇳​​🇩​ ​🇧​​🇱​​🇪​​🇸​​🇸​ ​🇾​​🇴​​🇺​​🇷​ ​🇹​​🇷​​🇦​​🇻​​🇪​​🇱​​🇸​❝·._.·°¯°·.·° .·°°°
+
 <img width="1200" height="735" alt="4d1c2fe17f300c1f6e965c89e997d4f1" src="https://github.com/user-attachments/assets/59041c9e-a45e-421b-9bca-4210714748b1" />
 <img width="1308" height="736" alt="80fd6552f88deebf34d16af453be720f" src="https://github.com/user-attachments/assets/b5c0a132-4d99-4feb-8dcc-77811a6b5c39" />
