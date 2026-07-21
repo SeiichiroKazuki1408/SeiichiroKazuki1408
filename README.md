@@ -1,6 +1,6 @@
 “If you wanna stop this, then stand up! Because I've got one thing to say to you! Never forget who you want to become!"
-                            -Todoroki Shoto-
-                            
+
+                                        -Todoroki Shoto-                     
   <img width="736" height="909" alt="62b47e280aba8ef9e362259d8e49273c" src="https://github.com/user-attachments/assets/9a0392f0-3aa7-4004-8837-3a76450cefbb" />
 <img width="735" height="412" alt="b40ddaf32d1372a8abce388843244c63 (1)" src="https://github.com/user-attachments/assets/2398dbbf-4df7-445d-85df-40b8b4abb78b" />
 
